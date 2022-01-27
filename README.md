@@ -1,2 +1,4 @@
 # spambeta
-yyyyeeeeeeea
+idk
+
+a shit guy on code (stilllearning)
